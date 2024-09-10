@@ -19,7 +19,7 @@ Professor: Dr. Andrew Bond
                                           PREPARED BY:
 
                                                 Name: HARIVARDHANA NAGA NAIDU POLIREDDI
-                                                Name: Yashasvi Kotra
+                                                
 
 
 
